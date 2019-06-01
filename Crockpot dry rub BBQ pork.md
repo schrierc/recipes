@@ -24,7 +24,7 @@ https://www.reddit.com/r/slowcooking/comments/37tass/looking_for_a_super_in_dept
 1.  Place pork on top of stock and onion/garlic mixture in slow cooker. Turn it on low, and leave it be for about eight hours. If pork isn't shredding to your likeness, put it in for 2-3 more hours.
 
 
-OPTIONAL: BBQ time
+## OPTIONAL: BBQ sauce
 The recipe above is for non-BBQ pork. If you want it to be more saucy, it's a pretty easy next step.
 After pork cooks, remove it from the crock pot and shred it (should basically fall apart, I can usually shred it by just pressing on it with a fork). Remove excess onions that haven't dissolved, and maybe half the remaining brother from the slow cooker.
 Add in shredded pork, and mix around to absorb remaining stock. Add in favorite BBQ sauce (Sweet Baby Ray's is always a crowd pleaser) until desired sauciness is reached. Mix again, and leave on for 1 hour on low to infuse.
