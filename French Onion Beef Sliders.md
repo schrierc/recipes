@@ -17,7 +17,7 @@ https://hostthetoast.com/french-onion-beef-sliders/
 -  1 teaspoon onion powder
 -  1 teaspoon garlic powder
 
-## Directions
+## Instructions
 1.  Melt 2 tablespoons of the butter in a skillet over medium heat.
 1.  Add in the onions and reduce the heat to medium low. Cook, stirring occasionally, until lightly caramelized, about 25-30 minutes. If the onions start to look dry or burnt, add a tablespoon of water to the pan.
 1.  In a large bowl, mix the ground beef with half of the beef base and half of the Worcestershire sauce. Season with salt and pepper.
